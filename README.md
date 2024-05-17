@@ -11,6 +11,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 Você pode entrar em contato comigo 📫
 
-![00001085011422sp@al.educacao.gov.br](link)
+00001085011422sp@al.educacao.gov.br
 
 ![](https://media1.tenor.com/m/fTdOzDqAc6IAAAAC/merhaba.gif)
